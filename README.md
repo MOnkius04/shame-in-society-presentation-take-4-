@@ -1,1 +1,0 @@
-# shame-in-society-presentation-take-4-
